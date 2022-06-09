@@ -1,0 +1,13 @@
+- �Hi,I'@octocat26
+I' interested  in prittie girl's, I’m @Octocat26
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on howon ...
+- 📫 How to ryou can reach me
+each me ...
+
+<!---
+Octocat26/Octocat26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+
+HI I'm @octocat26 I'm interested  in prittie  girl's 
